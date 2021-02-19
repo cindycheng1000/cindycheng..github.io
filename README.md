@@ -1,1 +1,1 @@
-# cindycheng..github.io
+# cindycheng.github.io
